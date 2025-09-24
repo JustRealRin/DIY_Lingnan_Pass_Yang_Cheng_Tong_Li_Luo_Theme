@@ -1,0 +1,1 @@
+This card design is a DIY custom creation and is not an official product of Lingnan Pass or Yang Cheng Tong, nor is it a co-branded product. This design is not affiliated with Lingnan Pass, Yang Cheng Tong, or China T-Union, and is solely a fan-made work (Doujin).
